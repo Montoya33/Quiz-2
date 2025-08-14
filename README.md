@@ -1,1 +1,2 @@
 # Quiz-2
+I think that everything that I learn was important because im new in this type of this and all the content was a new world that I was learning. The nex term I will have the basic that I have now i will do my best because I know that i can do a better job. This Experience was challenging and also entretainment because all the content that i was learn. Thank you so much and I wish you the best airrick!!
